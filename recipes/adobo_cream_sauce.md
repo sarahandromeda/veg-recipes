@@ -1,0 +1,2 @@
+- Mayo (We use Hellmans (Appently only called Best Foods on this side of the Mississippi) Vegan Mayo)
+- Chilies in Adobo Sauce
